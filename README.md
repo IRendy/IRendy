@@ -15,6 +15,10 @@ Ideal and Real Ending 明明是End却用了现在分词，结束了却又有些�
 所以是IRendy！\~（叉腰 自信）所以音标的话也就是喜闻乐见的[aɪˈrendy]（什么嘛 很普通嘛\~）
 
 ---
-I'm a sophomore student from Taiyuan University, major in Landscape Architecture. I love cute anime girls and don't like any strangers.  
-Of course, I can't refuse any cute girls.:-??? (嘛 只要是漂亮的女孩子不论是什么要求都不会拒绝啦……)  
-And this is just a dump of codes, so if you want to program, 可以考虑看看开源佬的代码，而不是从我这里学习。就这样，晚安……
+
+个人的话，是大二生。主修是风景园林。喜欢的是可爱的女孩子。  
+当然，如果你对你自己的相貌足够自信，可爱的男孩子我也是可以接受的。  
+
+就你所见，这里很少有人来，如果你有幸看到的话，可以随手点个fo再滑走也不迟。  
+毕竟这里真的没有你需要的代码哦 poi~~
+
