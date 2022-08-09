@@ -4,7 +4,6 @@
 
 诶诶？！！先是喜闻乐见的昵称解释吗？  
 Ideal and Real Ending 明明是End却用了现在分词，结束了却又有些开始的感觉呢~（坏笑）
-
 ---
 I'm a sophomore student from Taiyuan University, major in Landscape Architecture. I love cute anime girls and don't like any strangers.  
 Of course, I can't refuse any cute girls.:-??? (嘛 只要是漂亮的女孩子不论是什么要求都不会拒绝啦……)  
